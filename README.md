@@ -2,9 +2,9 @@
 
 
 
-- 🖥️ Estudando Ciências da computação
+- 🖥️ Estudante de Análise e Desenvolvimento de Sistemas
 - 🌱 Vegetariano e futuro vegano
-- 🖱️ Quero mudar vidas através da Tecnologia
+- 🖱️ Quero facilitar a vida através da Tecnologia
 - 📫 Meu linkedin é www.linkedin.com/in/diegomartins27
 - 📫 Meu contato é diegosocial20@hotmail.com
 - 😄 Meus pronomes são Ele/Dele
