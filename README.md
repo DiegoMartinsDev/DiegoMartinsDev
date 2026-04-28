@@ -2,7 +2,7 @@
 
 
 
-- 🖥️ Estudante de Análise e Desenvolvimento de Sistemas
+- 🖥️ Estudante de EngenhariaDa Computação
 - 🌱 Vegetariano e futuro vegano
 - 🖱️ Quero facilitar a vida através da Tecnologia
 - 📫 Meu linkedin é www.linkedin.com/in/diegomartins27
